@@ -1,2 +1,2 @@
 # ESL
-an masterial of studying english for english second leaner
+an material of studying english for english second leaner
